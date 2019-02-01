@@ -1,1 +1,1 @@
-This project is project is made by Shubham, Rahul, Vishal, Satendra.
+This project is made by Shubham, Rahul, Vishal, Satendra.
